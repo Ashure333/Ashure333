@@ -3,6 +3,6 @@
 - 👯 I’m looking to collaborate on sekiro
 - 🤔 I’m looking for help with Gyobu Masataka Oniwa
 - 💬 Ask me about Parrying
-- 📫 How to reach me: contact me at johrinashleigh@gmail.com
+- 📫 How to reach me: contact me at johrinashleigh.chan@gmail.com
 - 😄 Pronouns: Apache Attack Helicopter
 - ⚡ Fun fact: Every 60 seconds in Africa a minute passes on USA
